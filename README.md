@@ -1,1 +1,6 @@
 ![image](https://github.com/11024153/Homework-2/blob/main/%E5%BC%95%E8%A8%80.png)
+![image](https://github.com/11024153/Homework-2/blob/main/%E5%88%9D%E5%A7%8B%E5%8C%96.png)
+![image](https://github.com/11024153/Homework-2/blob/main/%E6%B7%BB%E5%8A%A0%E5%85%83%E7%B4%A0.png)
+![image](https://github.com/11024153/Homework-2/blob/main/%E5%BD%88%E5%87%BA%E5%A0%86%E9%A0%85-1.png)
+![image](https://github.com/11024153/Homework-2/blob/main/%E5%BD%88%E5%87%BA%E5%A0%86%E9%A0%85-2.png)
+![image](https://github.com/11024153/Homework-2/blob/main/%E6%B8%AC%E8%A9%A6.png)
